@@ -1,0 +1,1 @@
+tempo e localizaçao
